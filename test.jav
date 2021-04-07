@@ -1,8 +1,8 @@
 
 
+******Bharatiya Samajavadi party***
 
-
-**********WORLD WIDE COVID ISSUE****** 
+********WORLD WIDE COVID ISSUE************
 
 
 *******Master data recovery********** 
